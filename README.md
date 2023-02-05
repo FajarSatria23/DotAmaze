@@ -1,0 +1,2 @@
+# DotAmaze
+DotAmaze Fandom
